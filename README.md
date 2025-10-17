@@ -15,6 +15,7 @@
 - Интересные факты:
   - Выпустила свою первую [книгу](https://www.ozon.ru/search/?deny_category_prediction=true&from_global=true&text=Хорошим+Мальчикам+Верят+%7C+Кристина+Саб+%7C+Электронная+книга&product_id=913391605) в 18 лет, сотрудничая с издательством eksmo
   - Моему [Youtube-каналу](https://youtube.com/sabicklove) уже более 10 лет
+  - Знаю 4 языка
 
 ## Образование
 - Woosong university, Южная Корея, Аналитика данных и Программирование (2025)
