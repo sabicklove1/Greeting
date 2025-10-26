@@ -26,4 +26,4 @@
 - 📱 Telegram: [@sabicklove](https://t.me/sabicklove)
 - ✉️ Email: sabicklove@icloud.com
 - Резюме на HH: [клик](https://hh.ru/resume/926ea5d1ff0ba394940039ed1f7a3656547855)
-- Резюме на LinkedIn: [click]()
+- Профиль на LinkedIn: [click](https://www.linkedin.com/in/kristina-sab-567739232/)
